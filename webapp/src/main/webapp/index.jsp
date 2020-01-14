@@ -1,2 +1,2 @@
-hello Mr.Nag, jenkins wishes you a very happy sankranthi.
-kaali keench kut deel mar!!!
+Hi Bhanu Prakash Sir, jenkins wishes you a very happy sankranthi.
+have great kite flying.
