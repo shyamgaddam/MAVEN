@@ -1,2 +1,2 @@
-Hi Purna, jenkins wishes you a very happy sankranthi to you and your family.
-keench kut deel maar!!!
+I WISH YOU ALL A GREAT AND HAPPY SANKRANTHI!!
+        - DEVOPS AND AWS
