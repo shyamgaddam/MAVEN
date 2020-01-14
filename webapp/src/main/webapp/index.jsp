@@ -1,2 +1,2 @@
-Hi Bhanu Prakash Sir, jenkins wishes you a very happy sankranthi.
-have great kite flying.
+Hi Purna, jenkins wishes you a very happy sankranthi to you and your family.
+keench kut deel maar!!!
